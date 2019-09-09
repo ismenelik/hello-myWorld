@@ -6,8 +6,10 @@ tech developed civ set in vicky period
 
 spies and love and betrayal
 
-trade secrets go back and forth
+i'd like to add the apocalytptic nature and steampunkishness of it all
 
-city is underwater between islands in the archipelago
+steam powered schooners
 
-what
+neo colonial intrigue
+
+I'd like to add vicky and steamy aspects
