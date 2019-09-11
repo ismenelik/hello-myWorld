@@ -11,3 +11,5 @@ i'd like to add the apocalytptic nature and steampunkishness of it all
 steam powered schooners
 
 neo colonial intrigue
+
+Who are the characters?
