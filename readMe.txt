@@ -12,4 +12,10 @@ steam powered schooners
 
 neo colonial intrigue
 
-Who are the characters?
+I'd like to add vicky and steamy aspects
+
+
+Let's add characters:
+- Voland
+-
+-
