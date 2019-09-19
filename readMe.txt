@@ -19,3 +19,5 @@ Let's add characters:
 - Voland
 - Viola
 - Albiol, the enemy
+
+The hero leaves in a hopeless quest and when he returns many things have changed.
