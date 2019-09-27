@@ -25,3 +25,6 @@ The hero leaves in a hopeless quest and when he returns many things have changed
 This is a story about a friendship lost a love lost but also the things that were gained.
 
 Points of contention?
+Voland & Albiol put their parents are contenders. Theirs is a proxy fight
+They love same girl, Viola
+Is Viola using them? What is she up to?
