@@ -21,3 +21,7 @@ Let's add characters:
 - Albiol, the enemy
 
 The hero leaves in a hopeless quest and when he returns many things have changed.
+
+This is a story about a friendship lost a love lost but also the things that were gained.
+
+Points of contention?
