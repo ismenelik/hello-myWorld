@@ -28,3 +28,13 @@ Points of contention?
 Voland & Albiol put their parents are contenders. Theirs is a proxy fight
 They love same girl, Viola
 Is Viola using them? What is she up to?
+
+Albiol tricks Voland into taking a daring mission to impress Viola thus separating them.
+
+Albiol plans to take Viola while Voland is away but she's pregnant with Voland's kid.
+
+Viola is working for the enemy gov and really wants to be close to Albiol and steal his fathers secrets.
+
+Voland seeing that he's been played and stuck away has to sell all to be abke to returmn
+
+Upon return and seeing impact of family and not seeing Viola, he offs himself.
